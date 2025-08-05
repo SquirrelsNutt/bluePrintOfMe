@@ -4,8 +4,8 @@ Operating System
 - 
 
 Whakapapa
-- Mum was born in New Zealand but grandparents from Netherlands
-- Dad from New Zealand
+- Mum's side is from the Netherlands
+- Dad's from New Zealand
 - Me born and raised in Whangarei
 - 
 
